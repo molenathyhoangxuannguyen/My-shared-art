@@ -1,4 +1,4 @@
-# T02: Our Shared Art
+# My work of Art
 
 ## by Thy Nguyen
 
